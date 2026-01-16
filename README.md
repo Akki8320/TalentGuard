@@ -27,7 +27,9 @@ TalentGuardは、東京大学GCIでの知見と、サンフランシスコのス
 Created by Aki
 
 Waseda University (Graduating March 2026)
+
 Ex-Marketing Coordinator at btrax (San Francisco)
+
 University of Washington Study Abroad（Seattle, Global Business certificates)
 
 ---
